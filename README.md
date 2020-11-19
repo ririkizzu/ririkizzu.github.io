@@ -1,0 +1,1 @@
+# ririkizzu.github.io
